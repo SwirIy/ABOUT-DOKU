@@ -10,4 +10,4 @@ by me
 
 by others
 
-![](https://i.ibb.co/YZrqJm3/115-Sem-Titulo-20240730145225.webp)
+![](https://i.ibb.co/YZrqJm3/115-Sem-Titulo-20240730145225.webp) ![](https://i.ibb.co/Nm9jKrY/1724766456838.webp)
