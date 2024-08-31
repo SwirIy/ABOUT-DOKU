@@ -26,3 +26,5 @@ likes to keep his hair short, his hair was kept long the entire time he was a su
 likes pink because he was given a pink bow by a child - the only person who was kind to him, that child was supposedly killed by the scientist, to experiment on her body and blood, and the scientist being the weirdo he is, decided it would be good if doku helped him in the experimenting process, he originally had brown hair and dark brown eyes
 
 he was clumsy, so the scientist decided to experiment on him (by adding a syringe that could cure people with one single injection, with a 20% chance on poisoning you instead though) the tail, so that he could be more useful to the scientist, also why he's hard to kill, and he's immune to poison (since his blood is 70% poison from all the experiments)
+
+the heart earrings were given from the scientist and he's scared enough of the scientist (even though hes dead) that he cant bring himself to take it off
