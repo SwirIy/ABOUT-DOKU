@@ -10,7 +10,7 @@ by me
 
 by others
 
-![](https://i.ibb.co/YZrqJm3/115-Sem-Titulo-20240730145225.webp) ![](https://i.ibb.co/Nm9jKrY/1724766456838.webp)
+![](https://i.ibb.co/YZrqJm3/115-Sem-Titulo-20240730145225.webp) ![](https://i.ibb.co/Nm9jKrY/1724766456838.webp) [![lovebruise-AT-20240905222553.webp](https://i.postimg.cc/rpkybJG0/lovebruise-AT-20240905222553.webp)](https://postimg.cc/3ktH02cY)
 
 ---
 used to be a smart and succesful person (before the whole kidnapping)
